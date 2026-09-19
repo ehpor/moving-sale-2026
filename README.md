@@ -157,6 +157,15 @@ Modern side table with a light oak-tone top and black square metal frame. Approx
 
 ---
 
+## TP-Link Kasa Smart Wi-Fi Power Strip, 6-Outlet (HS300) — $30
+
+TP-Link Kasa HS300 smart strip with 6 individually controllable outlets plus 3 USB ports. 15A/1875W, surge protection, app/voice control. Works.
+
+![Kasa power strip](Electronics/kasa-power-strip-1.jpg)
+![Kasa power strip label](Electronics/kasa-power-strip-2.jpg)
+
+---
+
 ## Walnut 2-Tier Open Nightstand — $25
 
 Walnut-effect nightstand/bedside shelf with two open compartments, round tapered wood legs, and a tray-style top. Approx. 24 in tall.
@@ -245,6 +254,14 @@ Six colorful ceramic planters on wooden bases, plus a small turtle planter. Some
 Black metal gooseneck watering can with a wooden handle. Good condition.
 
 ![Watering can](Decor/watering-can-1.jpg)
+
+---
+
+## Set of 3 Round Cork Trivets — Free
+
+Three round natural cork trivets/pot holders. Good condition.
+
+![Cork trivets](Kitchen/cork-trivets-1.jpg)
 
 ---
 
