@@ -183,14 +183,6 @@ Compact constant-temperature hot plate for SMD rework/PCB preheating with digita
 
 ---
 
-## Baking Pan Set + Cooling Racks — $20
-
-Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 in brownie pan, 8×4 in loaf/cake pan, 11×7 in brownie pan, and 8 cooling racks.
-
-![Baking set](Kitchen/baking-set-1.jpg)
-
----
-
 ## Cosori 1.7 L Electric Kettle (Black) — $15
 
 Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with water), 1500W fast boil, auto shut-off, and blue LED. Clean, no cracks or chips.
@@ -200,7 +192,23 @@ Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with
 
 ---
 
-## Stainless Soup Pot with Glass Lid (9 in) — $15
+## Baking Pan Set + Cooling Racks — $10
+
+Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 in brownie pan, 8×4 in loaf/cake pan, 11×7 in brownie pan, and 8 cooling racks.
+
+![Baking set](Kitchen/baking-set-1.jpg)
+
+---
+
+## IKEA APTITLIG Butcher Block (Bamboo) — $10
+
+IKEA APTITLIG bamboo butcher block with a juice groove. Thick and heavy, good condition with light knife marks.
+
+![Cutting board](Kitchen/cutting-board-1.jpg)
+
+---
+
+## Stainless Soup Pot with Glass Lid (9 in) — $8
 
 Almost-unused 9-in stainless soup pot with glass lid and loop handles.
 
@@ -208,11 +216,19 @@ Almost-unused 9-in stainless soup pot with glass lid and loop handles.
 
 ---
 
-## IKEA Dish Drainer (52 × 34 cm) — $10
+## IKEA Dish Drainer (52 × 34 cm) — $5
 
 IKEA dish drainer with ribbed tray and wire rack. Good condition.
 
 ![Dish drainer](Kitchen/dish-drying-rack-1.jpg)
+
+---
+
+## IKEA UPPDATERA Flatware Tray (Light Bamboo) — $5
+
+IKEA UPPDATERA bamboo flatware tray with divided compartments. Good clean condition.
+
+![Flatware tray](Kitchen/flatware-tray-1.jpg)
 
 ---
 

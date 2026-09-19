@@ -2,7 +2,7 @@
 
 IKEA dish drainer with a ribbed drip tray and chrome wire rack for plates and cups. Measures approx. 52 × 34 cm. Good condition.
 
-**Price: $10 OBO**
+**Price: $5 OBO**
 
 Photos:
 - dish-drying-rack-1.jpg
