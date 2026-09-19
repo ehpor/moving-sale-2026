@@ -183,12 +183,36 @@ Compact constant-temperature hot plate for SMD rework/PCB preheating with digita
 
 ---
 
+## Baking Pan Set + Cooling Racks — $20
+
+Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 in brownie pan, 8×4 in loaf/cake pan, 11×7 in brownie pan, and 8 cooling racks.
+
+![Baking set](Kitchen/baking-set-1.jpg)
+
+---
+
 ## Cosori 1.7 L Electric Kettle (Black) — $15
 
 Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with water), 1500W fast boil, auto shut-off, and blue LED. Clean, no cracks or chips.
 
 ![Cosori kettle](Appliances/cosori-kettle-1.jpg)
 ![Cosori kettle boiling](Appliances/cosori-kettle-4.jpg)
+
+---
+
+## Stainless Soup Pot with Glass Lid (9 in) — $15
+
+Almost-unused 9-in stainless soup pot with glass lid and loop handles.
+
+![Soup pot](Kitchen/soup-pan-1.jpg)
+
+---
+
+## IKEA Dish Drainer (52 × 34 cm) — $10
+
+IKEA dish drainer with ribbed tray and wire rack. Good condition.
+
+![Dish drainer](Kitchen/dish-drying-rack-1.jpg)
 
 ---
 
@@ -205,3 +229,21 @@ Six colorful ceramic planters on wooden bases, plus a small turtle planter. Some
 Black metal gooseneck watering can with a wooden handle. Good condition.
 
 ![Watering can](Decor/watering-can-1.jpg)
+
+---
+
+## Free Books
+
+The following books are **free** — take one or take them all. They're on the ladder bookshelf; pickup on Button St, meet in a public place, or I can deliver to your office at UCSC.
+
+- Hyperion — Dan Simmons
+- A Memory Called Empire — Arkady Martine
+- A Desolation Called Peace — Arkady Martine
+- The Three-Body Problem trilogy (The Three-Body Problem, The Dark Forest, Death's End) — Liu Cixin
+- The Martian Race — Gregory Benford
+- Project Hail Mary — Andy Weir
+- Artemis — Andy Weir
+- The Fifth Season trilogy (The Fifth Season, The Obelisk Gate, The Stone Sky) — N. K. Jemisin
+- The Hunger Games (Book 1) — Suzanne Collins
+- The Housemaid — Freida McFadden
+- Tender Is the Flesh — Agustina Bazterrica
