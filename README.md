@@ -184,14 +184,6 @@ Both units work. Each plug controls two outlets independently via the Govee Home
 
 ---
 
-## Miniware MHP50 Mini Hot Plate Preheater — $20
-
-Compact constant-temperature hot plate for SMD rework/PCB preheating with digital display. Includes original box, power cable, and silicone mat. Lightly used.
-
-![Miniware hot plate](Electronics/miniware-hot-plate-1.jpg)
-
----
-
 ## Cosori 1.7 L Electric Kettle (Black) — $15
 
 Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with water), 1500W fast boil, auto shut-off, and blue LED. Clean, no cracks or chips.
