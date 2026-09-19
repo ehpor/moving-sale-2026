@@ -1,6 +1,6 @@
 # IKEA APTITLIG Butcher Block (Bamboo)
 
-IKEA APTITLIG butcher block in bamboo with a juice groove around the edge. Thick, heavy board in good condition with light knife marks from normal use. (Shown sitting on the side table, which is listed separately.)
+IKEA APTITLIG butcher block in bamboo with a juice groove around the edge. Used; thick, heavy board in good condition with light knife marks from normal use. (Shown sitting on the side table, which is listed separately.)
 
 **Price: $10 OBO**
 

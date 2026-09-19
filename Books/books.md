@@ -1,6 +1,6 @@
 # Free Books
 
-The following books are **free** — take one or take them all. They're on the ladder bookshelf. Pickup on Button St, meet in a public place, or I can deliver to your office at UCSC.
+The following books are **free** — take one or take them all. They're on the ladder bookshelf.
 
 - Hyperion — Dan Simmons
 - A Memory Called Empire — Arkady Martine

@@ -9,7 +9,7 @@ I'm moving overseas and selling my stuff. **All prices are OBO (or best offer)**
 
 ## Aventon Soltera 2.5 E-Bike (Matte Black, Size L) — $700
 
-Lightweight Class 2 e-bike with hydraulic disc brakes, 350W motor, 9.6Ah battery, torque sensor, and integrated lights with turn signals. ~1,533 miles; scuffs/scratches from parking and an attempted theft (the lock held). Includes a Kryptonite U-lock. MSRP $1,199.
+Lightweight Class 2 e-bike with hydraulic disc brakes, 350W motor, 9.6Ah battery, torque sensor, and integrated lights with turn signals, plus added fenders. ~1,533 miles; scuffs/scratches from parking and an attempted theft (the lock held). Includes a Kryptonite U-lock. MSRP $1,199.
 
 ![Aventon Soltera 2.5](Bikes/aventon-soltera-1.jpg)
 ![Aventon Soltera 2.5 side](Bikes/aventon-soltera-2.jpg)
@@ -202,7 +202,7 @@ Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 
 
 ## IKEA APTITLIG Butcher Block (Bamboo) — $10
 
-IKEA APTITLIG bamboo butcher block with a juice groove. Thick and heavy, good condition with light knife marks.
+IKEA APTITLIG bamboo butcher block with a juice groove. Used; thick and heavy, good condition with light knife marks.
 
 ![Cutting board](Kitchen/cutting-board-1.jpg)
 
@@ -226,7 +226,7 @@ IKEA dish drainer with ribbed tray and wire rack. Good condition.
 
 ## IKEA UPPDATERA Flatware Tray (Light Bamboo) — $5
 
-IKEA UPPDATERA bamboo flatware tray with divided compartments. Good clean condition.
+IKEA UPPDATERA bamboo flatware tray with divided compartments. Used; good clean condition.
 
 ![Flatware tray](Kitchen/flatware-tray-1.jpg)
 
@@ -250,7 +250,7 @@ Black metal gooseneck watering can with a wooden handle. Good condition.
 
 ## Free Books
 
-The following books are **free** — take one or take them all. They're on the ladder bookshelf; pickup on Button St, meet in a public place, or I can deliver to your office at UCSC.
+The following books are **free** — take one or take them all. They're on the ladder bookshelf.
 
 - Hyperion — Dan Simmons
 - A Memory Called Empire — Arkady Martine

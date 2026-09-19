@@ -1,6 +1,6 @@
 # IKEA UPPDATERA Flatware Tray (Light Bamboo)
 
-IKEA UPPDATERA flatware/utensil tray in light bamboo with divided compartments for cutlery and kitchen tools. Good clean condition.
+IKEA UPPDATERA flatware/utensil tray in light bamboo with divided compartments for cutlery and kitchen tools. Used; good clean condition.
 
 **Price: $5 OBO**
 
