@@ -268,7 +268,7 @@ The following books are **free** — take one or take them all.
 - The Martian Race — Gregory Benford
 - Project Hail Mary — Andy Weir - CLAIMED
 - Artemis — Andy Weir
-- The Fifth Season trilogy (The Fifth Season, The Obelisk Gate, The Stone Sky) — N. K. Jemisin
+- The Fifth Season trilogy (The Fifth Season, The Obelisk Gate, The Stone Sky) — N. K. Jemisin - CLAIMED
 - The Hunger Games (Book 1) — Suzanne Collins - CLAIMED
 - The Housemaid — Freida McFadden
-- Tender Is the Flesh — Agustina Bazterrica
+- Tender Is the Flesh — Agustina Bazterrica - CLAIMED
