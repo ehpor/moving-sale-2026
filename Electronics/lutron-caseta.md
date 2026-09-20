@@ -1,6 +1,6 @@
 # Lutron Caseta Wireless Smart Lighting Bundle (DVRF-BDG-1DP-A)
 
-Brand new in sealed box. Includes Smart Bridge (L-BDG2), in-wall dimmer (DVRF-6L), Pico remote (PJ2-3BRL), wallplate, power supply, cables, and quick-start guide. Great starter kit for smart home lighting.
+Open box but unused. Includes Smart Bridge (L-BDG2), in-wall dimmer (DVRF-6L), Pico remote (PJ2-3BRL), wallplate, power supply, cables, and quick-start guide. Great starter kit for smart home lighting.
 
 **Price: $80 OBO**
 

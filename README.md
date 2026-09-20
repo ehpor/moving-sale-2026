@@ -76,7 +76,7 @@ Genuine Elgato Key Light (SKU 10GAK9901): 2800 lumens, adjustable 2900–7000K, 
 
 ## Lutron Caseta Wireless Smart Lighting Bundle — $80
 
-Brand new, sealed box (DVRF-BDG-1DP-A). Includes Smart Bridge, in-wall dimmer, Pico remote, wallplate, power supply, cables, and guide.
+Open box, unused (DVRF-BDG-1DP-A). Includes Smart Bridge, in-wall dimmer, Pico remote, wallplate, power supply, cables, and guide.
 
 ![Lutron Caseta](Electronics/lutron-caseta-1.jpg)
 ![Lutron Caseta contents](Electronics/lutron-caseta-2.jpg)
