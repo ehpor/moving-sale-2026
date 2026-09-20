@@ -259,7 +259,7 @@ Three round natural cork trivets/pot holders. Good condition.
 
 ## Free Books
 
-The following books are **free** — take one or take them all. They're on the ladder bookshelf.
+The following books are **free** — take one or take them all.
 
 - Hyperion — Dan Simmons
 - A Memory Called Empire — Arkady Martine
