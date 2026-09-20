@@ -195,7 +195,7 @@ Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with
 
 ## Baking Pan Set + Cooling Racks — $10
 
-Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 in brownie pan, 8×4 in loaf/cake pan, 11×7 in brownie pan, and 8 cooling racks.
+Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 in brownie pan, 8×4 in loaf/cake pan, 11×7 in brownie pan, and 2 cooling racks.
 
 ![Baking set](Kitchen/baking-set-1.jpg)
 
