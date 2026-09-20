@@ -193,7 +193,7 @@ Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with
 
 ---
 
-## Baking Pan Set + Cooling Racks — $10
+## Baking Pan Set + Cooling Racks — $10 - CLAIMED
 
 Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 in brownie pan, 8×4 in loaf/cake pan, 11×7 in brownie pan, and 2 cooling racks.
 
@@ -209,7 +209,7 @@ IKEA APTITLIG bamboo butcher block with a juice groove. Used; thick and heavy, g
 
 ---
 
-## Stainless Soup Pot with Glass Lid (9 in) — $8
+## Stainless Soup Pot with Glass Lid (9 in) — $8 - CLAIMED
 
 Almost-unused 9-in stainless soup pot with glass lid and loop handles.
 
