@@ -48,7 +48,7 @@ Unused Elgato Stream Deck + with 8 LCD keys, 4 dials, and a touch strip. Include
 
 ## IKEA FJÄLLBO Shelving Unit (Black) — $120
 
-IKEA FJÄLLBO shelving unit: black metal frame, solid pine top, open display shelf, and two mesh doors with internal drawers. 111 × 47 × 95 cm. Matches the FJÄLLBO coffee table. Retails $299.
+IKEA FJÄLLBO shelving unit: black metal frame, solid pine top, open display shelf and two mesh doors. 111 × 47 × 95 cm. Matches the FJÄLLBO coffee table. Retails $299.
 
 ![FJÄLLBO shelving unit](Shelving-and-Storage/fjallbo-shelving-unit-1.jpg)
 ![FJÄLLBO shelving unit doors open](Shelving-and-Storage/fjallbo-shelving-unit-3.jpg)

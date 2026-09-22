@@ -1,6 +1,6 @@
 # IKEA FJÄLLBO Shelving Unit (Black, 111 × 47 × 95 cm)
 
-IKEA FJÄLLBO shelving unit in black metal with a solid pine wood top — an open display shelf up top plus two mesh doors with internal drawers below. Measures 111 × 47 × 95 cm (43 3/4 × 18 1/2 × 37 3/8 in). Matches the FJÄLLBO coffee table also listed. Retails for $299 new. Good used condition.
+IKEA FJÄLLBO shelving unit in black metal with a solid pine wood top — an open display shelf up top plus two mesh doors. Measures 111 × 47 × 95 cm (43 3/4 × 18 1/2 × 37 3/8 in). Matches the FJÄLLBO coffee table also listed. Retails for $299 new. Good used condition.
 
 **Price: $120 OBO**
 
