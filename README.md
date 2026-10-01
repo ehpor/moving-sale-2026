@@ -121,7 +121,7 @@ IKEA FJÄLLBO coffee table: black metal frame, solid pine top, and a lower mesh 
 
 ---
 
-## Black Metal 5-Tier Ladder Bookshelf — $45
+## Black Metal 5-Tier Ladder Bookshelf — $45 - SOLD
 
 Industrial leaning ladder shelf with black metal A-frame and five dark wood-grain shelves. 5.5 ft tall, sturdy, good condition. Books and decor not included.
 
