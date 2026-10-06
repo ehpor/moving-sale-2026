@@ -17,7 +17,7 @@ Lightweight Class 2 e-bike with hydraulic disc brakes, 350W motor, 9.6Ah battery
 
 ---
 
-## Eurotech Vera Ergonomic Office Chair (Piano Black) — $250
+## Eurotech Vera Ergonomic Office Chair (Piano Black) — $99
 
 Genuine Eurotech Vera mesh-back task chair with 6-way adjustable arms, seat-depth/height adjustment, and synchro-tilt. Piano Black mesh, soft 2-tone casters, no headrest; a new 5-pack of hard replacement casters is included.
 
@@ -27,7 +27,7 @@ Genuine Eurotech Vera mesh-back task chair with 6-way adjustable arms, seat-dept
 
 ---
 
-## IKEA KIVIK 2-Seat Sofa (Grey) — $150
+## IKEA KIVIK 2-Seat Sofa (Grey) — $150 - SOLD
 
 Low, deep IKEA KIVIK loveseat in a grey woven cover with the line's signature wide, low armrests. Approx. 190 × 95 × 83 cm. Good condition, minor fabric slack.
 
@@ -46,7 +46,7 @@ Unused Elgato Stream Deck + with 8 LCD keys, 4 dials, and a touch strip. Include
 
 ---
 
-## IKEA FJÄLLBO Shelving Unit (Black) — $120
+## IKEA FJÄLLBO Shelving Unit (Black) — $120 - SOLD
 
 IKEA FJÄLLBO shelving unit: black metal frame, solid pine top, open display shelf and two mesh doors. 111 × 47 × 95 cm. Matches the FJÄLLBO coffee table. Retails $299.
 
@@ -55,7 +55,7 @@ IKEA FJÄLLBO shelving unit: black metal frame, solid pine top, open display she
 
 ---
 
-## IKEA TRYSIL Bed Frame, Dark Brown — $90
+## IKEA TRYSIL Bed Frame, Dark Brown — $90 - SOLD
 
 IKEA TRYSIL bed frame with angled slatted headboard and metal center rail; wooden slats included (no box spring needed). 220 × 157 cm, 98 cm headboard. Good condition — the veneer is damaged at one corner (shown in photo 3), reflected in the price.
 
@@ -112,7 +112,7 @@ Semi-round brushed stainless-steel step can with soft-close pedal, removable inn
 
 ---
 
-## IKEA FJÄLLBO Coffee Table (Black) — $45
+## IKEA FJÄLLBO Coffee Table (Black) — $45 - SOLD
 
 IKEA FJÄLLBO coffee table: black metal frame, solid pine top, and a lower mesh shelf. 90 × 46 × 46 cm. Solid and stable with minor wear.
 
@@ -148,7 +148,7 @@ Two matching lamps with light wood bases, chrome stems, and white linen drum sha
 
 ---
 
-## Light Oak Square Side / End Table — $35
+## Light Oak Square Side / End Table — $15
 
 Modern side table with a light oak-tone top and black square metal frame. Approx. 18 × 18 in. Great beside a sofa or bed.
 
