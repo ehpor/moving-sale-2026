@@ -7,7 +7,7 @@ I'm moving overseas and selling my stuff. **All prices are OBO (or best offer)**
 
 ---
 
-## Aventon Soltera 2.5 E-Bike (Matte Black, Size L) — $700
+## Aventon Soltera 2.5 E-Bike (Matte Black, Size L) — $650
 
 Lightweight Class 2 e-bike with hydraulic disc brakes, 350W motor, 9.6Ah battery, torque sensor, and integrated lights with turn signals, plus added fenders. ~1,533 miles; scuffs/scratches from parking and an attempted theft (the lock held). Includes a Kryptonite U-lock. MSRP $1,199.
 
@@ -37,7 +37,7 @@ Low, deep IKEA KIVIK loveseat in a grey woven cover with the line's signature wi
 
 ---
 
-## Elgato Stream Deck + (Unused, Open Box) — $150
+## Elgato Stream Deck + (Unused, Open Box) — $75
 
 Unused Elgato Stream Deck + with 8 LCD keys, 4 dials, and a touch strip. Includes original box, cable, and quick-start guide. Retails $199.99.
 
@@ -65,16 +65,7 @@ IKEA TRYSIL bed frame with angled slatted headboard and metal center rail; woode
 
 ---
 
-## Elgato Key Light (Professional LED Panel) — $90
-
-Genuine Elgato Key Light (SKU 10GAK9901): 2800 lumens, adjustable 2900–7000K, Wi-Fi/app control. Includes the Master Mount L desk clamp/boom arm and power supply. Retails $179.99.
-
-![Elgato Key Light](Lighting/elgato-key-light-1.jpg)
-![Elgato Key Light rear](Lighting/elgato-key-light-2.jpg)
-
----
-
-## Lutron Caseta Wireless Smart Lighting Bundle — $80
+## Lutron Caseta Wireless Smart Lighting Bundle — $40
 
 Open box, unused (DVRF-BDG-1DP-A). Includes Smart Bridge, in-wall dimmer, Pico remote, wallplate, power supply, cables, and guide.
 
@@ -83,7 +74,7 @@ Open box, unused (DVRF-BDG-1DP-A). Includes Smart Bridge, in-wall dimmer, Pico r
 
 ---
 
-## Reolink Video Doorbell WiFi (2K 5MP) — $75
+## Reolink Video Doorbell WiFi (2K 5MP) — $35
 
 Used for about 2 years, fully working (D340W). 2K/5MP WiFi doorbell with chime, power adapter, mounting screws, and Ethernet cable.
 
@@ -103,7 +94,7 @@ Simple IKEA desk with a light oak-effect top and a black metal frame — round l
 
 ---
 
-## iTouchless SoftStep 13.2-Gallon Step Trash Can — $50
+## iTouchless SoftStep 13.2-Gallon Step Trash Can — $20
 
 Semi-round brushed stainless-steel step can with soft-close pedal, removable inner bucket, and AbsorbX odor filter. Clean, works smoothly; includes one extra odor filter. Retails ~$140.
 
@@ -130,7 +121,7 @@ Industrial leaning ladder shelf with black metal A-frame and five dark wood-grai
 
 ---
 
-## Blue Yeti USB Microphone (Silver) — $40
+## Blue Yeti USB Microphone (Silver) — $20
 
 Fully functional Blue Yeti condenser mic with desk stand — great for streaming, podcasts, or calls. Minor cosmetic wear on the base.
 
@@ -139,7 +130,7 @@ Fully functional Blue Yeti condenser mic with desk stand — great for streaming
 
 ---
 
-## Pair of Wooden Table Lamps with USB Ports — $40
+## Pair of Wooden Table Lamps with USB Ports — $20 - CLAIMED
 
 Two matching lamps with light wood bases, chrome stems, and white linen drum shades. Each plugs into the wall and has two built-in USB charging ports. Both lamps include bulbs.
 
@@ -148,7 +139,7 @@ Two matching lamps with light wood bases, chrome stems, and white linen drum sha
 
 ---
 
-## Light Oak Square Side / End Table — $15
+## Light Oak Square Side / End Table — $10
 
 Modern side table with a light oak-tone top and black square metal frame. Approx. 18 × 18 in. Great beside a sofa or bed.
 
@@ -157,7 +148,7 @@ Modern side table with a light oak-tone top and black square metal frame. Approx
 
 ---
 
-## TP-Link Kasa Smart Wi-Fi Power Strip, 6-Outlet (HS300) — $30
+## TP-Link Kasa Smart Wi-Fi Power Strip, 6-Outlet (HS300) — $15
 
 TP-Link Kasa HS300 smart strip with 6 individually controllable outlets plus 3 USB ports. 15A/1875W, surge protection, app/voice control. Works.
 
@@ -166,7 +157,7 @@ TP-Link Kasa HS300 smart strip with 6 individually controllable outlets plus 3 U
 
 ---
 
-## Walnut 2-Tier Open Nightstand — $25
+## Walnut 2-Tier Open Nightstand — $10
 
 Walnut-effect nightstand/bedside shelf with two open compartments, round tapered wood legs, and a tray-style top. Approx. 24 in tall.
 
@@ -175,7 +166,7 @@ Walnut-effect nightstand/bedside shelf with two open compartments, round tapered
 
 ---
 
-## Govee Dual Smart Plug 2-Pack (Model H5082) — $20
+## Govee Dual Smart Plug 2-Pack (Model H5082) — $10
 
 Both units work. Each plug controls two outlets independently via the Govee Home app with voice control and scheduling. 120V, 15A.
 
@@ -184,7 +175,7 @@ Both units work. Each plug controls two outlets independently via the Govee Home
 
 ---
 
-## Cosori 1.7 L Electric Kettle (Black) — $15
+## Cosori 1.7 L Electric Kettle (Black) — $10
 
 Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with water), 1500W fast boil, auto shut-off, and blue LED. Clean, no cracks or chips.
 
@@ -201,7 +192,7 @@ Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 
 
 ---
 
-## IKEA APTITLIG Butcher Block (Bamboo) — $10
+## IKEA APTITLIG Butcher Block (Bamboo) — $5
 
 IKEA APTITLIG bamboo butcher block with a juice groove. Used; thick and heavy, good condition with light knife marks.
 
