@@ -27,41 +27,12 @@ Genuine Eurotech Vera mesh-back task chair with 6-way adjustable arms, seat-dept
 
 ---
 
-## IKEA KIVIK 2-Seat Sofa (Grey) — $150 - SOLD
-
-Low, deep IKEA KIVIK loveseat in a grey woven cover with the line's signature wide, low armrests. Approx. 190 × 95 × 83 cm. Good condition, minor fabric slack.
-
-![KIVIK sofa](Sofas/kivik-sofa-1.jpg)
-![KIVIK sofa front](Sofas/kivik-sofa-2.jpg)
-![KIVIK sofa angle](Sofas/kivik-sofa-3.jpg)
-
----
-
 ## Elgato Stream Deck + (Unused, Open Box) — $75
 
 Unused Elgato Stream Deck + with 8 LCD keys, 4 dials, and a touch strip. Includes original box, cable, and quick-start guide. Retails $199.99.
 
 ![Stream Deck +](Electronics/stream-deck-plus-1.jpg)
 ![Stream Deck + box](Electronics/stream-deck-plus-2.jpg)
-
----
-
-## IKEA FJÄLLBO Shelving Unit (Black) — $120 - SOLD
-
-IKEA FJÄLLBO shelving unit: black metal frame, solid pine top, open display shelf and two mesh doors. 111 × 47 × 95 cm. Matches the FJÄLLBO coffee table. Retails $299.
-
-![FJÄLLBO shelving unit](Shelving-and-Storage/fjallbo-shelving-unit-1.jpg)
-![FJÄLLBO shelving unit doors open](Shelving-and-Storage/fjallbo-shelving-unit-3.jpg)
-
----
-
-## IKEA TRYSIL Bed Frame, Dark Brown — $90 - SOLD
-
-IKEA TRYSIL bed frame with angled slatted headboard and metal center rail; wooden slats included (no box spring needed). 220 × 157 cm, 98 cm headboard. Good condition — the veneer is damaged at one corner (shown in photo 3), reflected in the price.
-
-![TRYSIL bed](Beds/trysil-bed-frame-1.jpg)
-![TRYSIL bed front](Beds/trysil-bed-frame-2.jpg)
-![TRYSIL bed corner damage](Beds/trysil-bed-frame-3-damage.jpg)
 
 ---
 
@@ -84,40 +55,12 @@ Used for about 2 years, fully working (D340W). 2K/5MP WiFi doorbell with chime, 
 
 ---
 
-## IKEA Desk (Oak Effect / Black), 130 × 70 cm — $70 - SOLD
-
-Simple IKEA desk with a light oak-effect top and a black metal frame — round legs, a front support rail, and built-in hooks on both sides underneath for headphones or a bag. Approx. 130 × 70 cm, 75 cm high. Good condition; computer gear in the photos is not included.
-
-![IKEA desk](Desks/ikea-desk-1.jpg)
-![IKEA desk angle](Desks/ikea-desk-2.jpg)
-![IKEA desk hook detail](Desks/ikea-desk-3.jpg)
-
----
-
 ## iTouchless SoftStep 13.2-Gallon Step Trash Can — $20
 
 Semi-round brushed stainless-steel step can with soft-close pedal, removable inner bucket, and AbsorbX odor filter. Clean, works smoothly; includes one extra odor filter. Retails ~$140.
 
 ![iTouchless trash can](Appliances/itouchless-trash-can-1.jpg)
 ![iTouchless trash can open](Appliances/itouchless-trash-can-2.jpg)
-
----
-
-## IKEA FJÄLLBO Coffee Table (Black) — $45 - SOLD
-
-IKEA FJÄLLBO coffee table: black metal frame, solid pine top, and a lower mesh shelf. 90 × 46 × 46 cm. Solid and stable with minor wear.
-
-![FJÄLLBO coffee table](Tables/fjallbo-coffee-table-1.jpg)
-![FJÄLLBO coffee table front](Tables/fjallbo-coffee-table-2.jpg)
-
----
-
-## Black Metal 5-Tier Ladder Bookshelf — $45 - SOLD
-
-Industrial leaning ladder shelf with black metal A-frame and five dark wood-grain shelves. 5.5 ft tall, sturdy, good condition. Books and decor not included.
-
-![Ladder bookshelf](Shelving-and-Storage/ladder-bookshelf-1.jpg)
-![Ladder bookshelf stocked](Shelving-and-Storage/ladder-bookshelf-3.jpg)
 
 ---
 
@@ -184,27 +127,11 @@ Cosori 1.7 L glass kettle with stainless-steel interior (no plastic contact with
 
 ---
 
-## Baking Pan Set + Cooling Racks — $10 - SOLD
-
-Used baking set with scratches but fully usable: 10-in springform pie tin, 8×8 in brownie pan, 8×4 in loaf/cake pan, 11×7 in brownie pan, and 2 cooling racks.
-
-![Baking set](Kitchen/baking-set-1.jpg)
-
----
-
 ## IKEA APTITLIG Butcher Block (Bamboo) — $5
 
 IKEA APTITLIG bamboo butcher block with a juice groove. Used; thick and heavy, good condition with light knife marks.
 
 ![Cutting board](Kitchen/cutting-board-1.jpg)
-
----
-
-## Stainless Soup Pot with Glass Lid (9 in) — $8 - SOLD
-
-Almost-unused 9-in stainless soup pot with glass lid and loop handles.
-
-![Soup pot](Kitchen/soup-pan-1.jpg)
 
 ---
 
@@ -224,7 +151,7 @@ IKEA UPPDATERA bamboo flatware tray with divided compartments. Used; good clean 
 
 ---
 
-## Set of 6 Colorful Ceramic Planters (+ Turtle Planter) — $5
+## Set of 6 Colorful Ceramic Planters (+ Turtle Planter) — $5 - CLAIMED
 
 Six colorful ceramic planters on wooden bases, plus a small turtle planter. Some interior soil residue, otherwise good.
 
@@ -232,7 +159,7 @@ Six colorful ceramic planters on wooden bases, plus a small turtle planter. Some
 
 ---
 
-## Black Metal Watering Can with Wooden Handle — $5
+## Black Metal Watering Can with Wooden Handle — $5 - CLAIMED
 
 Black metal gooseneck watering can with a wooden handle. Good condition.
 
