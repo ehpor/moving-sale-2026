@@ -73,15 +73,6 @@ Fully functional Blue Yeti condenser mic with desk stand — great for streaming
 
 ---
 
-## Pair of Wooden Table Lamps with USB Ports — $20 - CLAIMED
-
-Two matching lamps with light wood bases, chrome stems, and white linen drum shades. Each plugs into the wall and has two built-in USB charging ports. Both lamps include bulbs.
-
-![Table lamps](Lighting/table-lamps-1.jpg)
-![Table lamp base with USB ports](Lighting/table-lamps-2.jpg)
-
----
-
 ## Light Oak Square Side / End Table — $10
 
 Modern side table with a light oak-tone top and black square metal frame. Approx. 18 × 18 in. Great beside a sofa or bed.
@@ -151,15 +142,7 @@ IKEA UPPDATERA bamboo flatware tray with divided compartments. Used; good clean 
 
 ---
 
-## Set of 6 Colorful Ceramic Planters (+ Turtle Planter) — $5 - CLAIMED
-
-Six colorful ceramic planters on wooden bases, plus a small turtle planter. Some interior soil residue, otherwise good.
-
-![Ceramic planters](Decor/ceramic-planters-1.jpg)
-
----
-
-## Black Metal Watering Can with Wooden Handle — $5 - CLAIMED
+## Black Metal Watering Can with Wooden Handle — $5
 
 Black metal gooseneck watering can with a wooden handle. Good condition.
 
