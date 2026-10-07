@@ -73,6 +73,25 @@ Fully functional Blue Yeti condenser mic with desk stand — great for streaming
 
 ---
 
+## 1080P Full HD LCD Projector — $20
+
+Used for only a couple of hours, in like-new condition. Includes remote, power cable, AV cable, and cleaning kit. Bought ~3 years ago; retails ~$90.
+
+![Projector](Electronics/1080p-projector-1.jpg)
+![Projector ports](Electronics/1080p-projector-4.jpg)
+![Projector accessories](Electronics/1080p-projector-5.jpg)
+
+---
+
+## Logitech C920 HD Pro Webcam (1080p) — $15
+
+Fully functional 1080p/30fps webcam with autofocus, HD auto light correction, and dual stereo mics. Universal clip mounts on laptops or monitors. Includes the attached USB cable.
+
+![Logitech C920](Electronics/logitech-c920-1.jpg)
+![Logitech C920 rear](Electronics/logitech-c920-2.jpg)
+
+---
+
 ## Light Oak Square Side / End Table — $10
 
 Modern side table with a light oak-tone top and black square metal frame. Approx. 18 × 18 in. Great beside a sofa or bed.
